@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sg894959@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1M1Qk2qUpyeNmOSas2s_5vAcXYXjQOzlR/edit?usp=sharing&ouid=109063786656708249890&rtpof=true&sd=true](https://docs.google.com/document/d/1M1Qk2qUpyeNmOSas2s_5vAcXYXjQOzlR/edit?usp=sharing&ouid=109063786656708249890&rtpof=true&sd=true)
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1aWa3aSU5r0xnLqFCMC8aRDcbvSUFnyIKy20T4LMdXo4/edit?usp=sharing)
 
 - ⚡ Fun fact **I like to play chess**
 
