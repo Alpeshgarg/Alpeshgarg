@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **Internship**
 
-- 📫 How to reach me **sg894959@gmail.com**
+- 📫 How to reach me **alpeshgarg24@gmail.com**
 
 - 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1aWa3aSU5r0xnLqFCMC8aRDcbvSUFnyIKy20T4LMdXo4/edit?usp=sharing)
 
